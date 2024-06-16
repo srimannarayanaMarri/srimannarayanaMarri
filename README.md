@@ -2,7 +2,7 @@
 - 👀 I’m interested in solving problems through coading.
 - 🌱 I’m currently learning final year B.Tech.
 - 💞️ I’m looking to collaborate on java.
-- 📫 reach me with 21jr1a12b3@gmail.com
+- 📫 reach me with indhrachowdary@gmail.com
 - 😄 Pronouns: Sriman
 
 
